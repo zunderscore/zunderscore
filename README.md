@@ -1,3 +1,3 @@
 # zunderscore
 
-Anything here is kinda just miscellaneous stuff.
+Hi. I'm zunder. And I'm terrible at intros.
